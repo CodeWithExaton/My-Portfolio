@@ -14,5 +14,5 @@ this perfect Portfolio Website. Now the second step is GETTING THE TEAM, it's
 hard to get employees who wanna work for free because I have NO Money so yeah,
 well so the other story of Nexoz is still left and it will be in the NEXT Blog.
 Byeee.
-# -Exaton
+### -Exaton
 ![Our Story...](./mountain.jpg)
