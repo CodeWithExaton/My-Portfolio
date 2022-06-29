@@ -15,4 +15,4 @@ hard to get employees who wanna work for free because I have NO Money so yeah,
 well so the other story of Nexoz is still left and it will be in the NEXT Blog.
 Byeee.
 ### -Exaton
-![Our Story...](./mountain.jpg)
+![Our Story...](./basic-rgb-137494372.jpg)
